@@ -1,10 +1,10 @@
 # Schedule 
 
 ## Friday
-A dinner
+A dinner 
 
 ## Saturday
-Fun things to do
+Wedding and reception
 
 ## Sunday
 A reward for sticking around
