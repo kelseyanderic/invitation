@@ -19,5 +19,7 @@ from the base at the Old Penitentiary parking lot if you're feeling a bit ambiti
 #### [Boise Zoo](http://zooboise.org/)  
 Boise has a lovely zoo where you can feed goats and meet [capybaras](http://www.zooborns.com/.a/6a010535647bf3970b01a3fd3d706c970b-800wi)!
 
-#### The North End  
 
+#### [The North End](https://northend.org/)  
+Boise's North End is a historic district with many parks, shops and restaurants. In addition to walking around the beautiful
+tree-lined streets of Hyde Park (the heart of the North End), we recommend coffee at Hyde Perk Cafe or Java, beer at Sun Ray Cafe, and most importantly, ice cream at Goody's Goodies.
