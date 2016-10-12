@@ -6,7 +6,7 @@ Saturday, May 13, 2017
 
 Boise, Idaho
 
-+++
+***
 
 We’re getting married and we hope you’ll join us for a fun weekend in Boise, Idaho!
 
