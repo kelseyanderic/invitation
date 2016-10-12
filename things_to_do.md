@@ -22,4 +22,7 @@ Boise has a lovely zoo where you can feed goats and meet [capybaras](http://www.
 
 #### [The North End](https://northend.org/)  
 Boise's North End is a historic district with many parks, shops and restaurants. In addition to walking around the beautiful
-tree-lined streets of Hyde Park (the heart of the North End), we recommend coffee at Hyde Perk Cafe or Java, beer at Sun Ray Cafe, and most importantly, ice cream at Goody's Goodies.
+tree-lined streets of Hyde Park (the heart of the North End), we recommend coffee at [Hyde Perk Coffee House](http://www.boiseweekly.com/boise/hyde-perk-coffee-house/Location?oid=3697014) or [Java](http://www.javabowlofsoul.com/), beer at [Sun Ray Cafe](https://www.facebook.com/SunRayCafeHydePark/), and most importantly, ice cream at [Goody's Goodies](http://www.goodyssodafountain.com/).
+
+#### [Bike the Greenbelt](https://parks.cityofboise.org/parks-locations/parks/greenbelt/)  
+The Boise River Greenbelt is a 25-mile tree-lined pathway that follows the river through the heart of the city and provides lovely scenery and access to many of the city's parks. You can [rent a bike](http://www.idahomountaintouring.com/articles/bike-rental-information-pg119.htm) downtown near to the hotels, five minutes away from the Greenbelt trail.
