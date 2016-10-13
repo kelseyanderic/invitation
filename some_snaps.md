@@ -1,6 +1,6 @@
 ### Some Pictures of our Family
 
-![Engagement Party at Churchill](photos/nuzzles.jpg)
+![Engagement Party at Churchill](photos/nuzzle.jpg)
 ![Chicken at Dolores Park](photos/birds-eye view.jpg)
 ![Dinner in DC](photos/matching.jpg)
 ![Kelsers Sleeping](photos/a gentle sleep - kelsey, chicken.jpg)
