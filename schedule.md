@@ -1,7 +1,9 @@
 # Schedule 
 
+Schedule to be updated with more specifics closer to the event so check back!
+
 ## Friday
-A dinner 
+Welcome dinner and drinks
 
 ## Saturday
 Wedding and reception
