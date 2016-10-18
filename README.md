@@ -22,6 +22,9 @@ All our love,
 
 Eric & Kelsey
 
+
+![New Years](photos/new years eve.small.jpeg)
+=======
 ***
 
 ### Links  
