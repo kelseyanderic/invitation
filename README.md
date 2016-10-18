@@ -21,3 +21,5 @@ If you have any questions, please email us at [ericandkelseywedding]@gmail.com. 
 All our love,
 
 Eric & Kelsey
+
+![New Years](photos/new years eve.small.jpg)
