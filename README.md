@@ -16,10 +16,22 @@ Boise in May will hopefully have beautiful weather, but it can be somewhat unpre
 
 On this site you’ll be able to find information on the weekend schedule, lodging, and recommendations of things to do and places to eat. 
 
-If you have any questions, please email us at [ericandkelseywedding]@gmail.com. We’re so excited to see you in May!
+If you have any questions, please email us at ericandkelseywedding@gmail.com. We’re so excited to see you in May!
 
 All our love,
 
 Eric & Kelsey
 
+
 ![New Years](photos/new years eve.small.jpeg)
+=======
+***
+
+### Links  
+[Schedule](https://github.com/kelseyanderic/invitation/blob/master/schedule.md)  
+[Lodging](https://github.com/kelseyanderic/invitation/blob/master/lodging.md)  
+[Things to Do in Boise](https://github.com/kelseyanderic/invitation/blob/master/things_to_do.md)  
+[Places to Eat and Drink](https://github.com/kelseyanderic/invitation/blob/master/places_to_eat_drink.md)  
+[Pictures](https://github.com/kelseyanderic/invitation/blob/master/some_snaps.md)  
+
+
