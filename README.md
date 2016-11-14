@@ -29,7 +29,7 @@ Eric & Kelsey
 
 ### Links  
 [Schedule](https://github.com/kelseyanderic/invitation/blob/master/events_schedule.md)  
-[Flights](https://github.com/kelseyanderic/invitation/blob/master/flights.md)
+[Flights](https://github.com/kelseyanderic/invitation/blob/master/flights.md)  
 [Lodging](https://github.com/kelseyanderic/invitation/blob/master/lodging.md)  
 [Things to Do in Boise](https://github.com/kelseyanderic/invitation/blob/master/recommended_activities.md)  
 [Places to Eat and Drink](https://github.com/kelseyanderic/invitation/blob/master/places_to_eat_drink.md)  
