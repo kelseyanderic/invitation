@@ -16,7 +16,7 @@ Boise in May will hopefully have beautiful weather, but it can be somewhat unpre
 
 On this site you’ll be able to find information on the weekend schedule, lodging, and recommendations of things to do and places to eat. 
 
-If you have any questions, please file an [issue](https://github.com/kelseyanderic/invitation/issues) or email us. We’re so excited to see you in May!
+If you have any questions, please file an [issue](https://github.com/kelseyanderic/invitation/issues) or [email us](mailto:wedding@ericjonas.com). We’re so excited to see you in May!
 
 All our love,
 
