@@ -34,5 +34,6 @@ Eric & Kelsey
 [Things to Do in Boise](https://github.com/kelseyanderic/invitation/blob/master/recommended_activities.md)  
 [Places to Eat and Drink](https://github.com/kelseyanderic/invitation/blob/master/places_to_eat_drink.md)  
 [Pictures](https://github.com/kelseyanderic/invitation/blob/master/some_snaps.md)  
+[Wedding Parties](https://github.com/kelseyanderic/invitation/blob/master/wedding_party.md) 
 
 
