@@ -38,7 +38,6 @@ Eric & Kelsey
 
 ***
 
-### One last note
 What we want most of all is for our friends and family to gather for the weekend in the same place. Your presence is the only gift we hope to receive. 
 
 
