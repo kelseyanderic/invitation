@@ -8,7 +8,7 @@ groomsmaids, bridesmaids and bridesmen - we're so grateful for each and every on
 [Vimal Bhalodia](http://casadeballoon.club/) (Officiant)  
 [Courtney Jonas Weaver](https://www.facebook.com/cojo4)  
 [Erica Peterson](http://web.mit.edu/astronut/www/)   
-[Selena Teji](https://www.youtube.com/watch?v=yNnkm4mdjIU) 
+[Selena Teji](https://www.youtube.com/watch?v=yNnkm4mdjIU)  
 [Max Gasner](http://www.onefinancialholdings.com/)
 
 ## Bride's Party  
@@ -19,6 +19,6 @@ groomsmaids, bridesmaids and bridesmen - we're so grateful for each and every on
 [Kyle Dancewicz](http://www.thecrimson.com/article/2011/4/26/dancewicz-hasty-pudding-profile/)  
 [Tessa Lyons](https://twitter.com/sameepa/status/779753813142011904)  
 [Camilla Johnson](https://www.nybarexam.org/EXJ15/HJ711.html)  
-[Lizzie Gregory](https://www.facebook.com/photo.php? fbid=10207218848889870&set=a.10207218848769867.1073741827.1242990012&type=3&theater)  
+[Lizzie Gregory](https://www.instagram.com/p/BI56B18Dh-M/)  
 [Kelly Rodigas](http://archive.boston.com/lifestyle/specials/bill_brett/december07seen?pg=26)  
 [Claiborne Thompson](http://tennislink.usta.com/Leagues/Main/StatsAndStandings.aspx?t=1&par1=CLAIBORNE&par2=THOMPSON&par3=False)  
