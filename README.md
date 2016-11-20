@@ -36,4 +36,9 @@ Eric & Kelsey
 [Pictures](https://github.com/kelseyanderic/invitation/blob/master/some_snaps.md)  
 [Wedding Parties](https://github.com/kelseyanderic/invitation/blob/master/wedding_party.md) 
 
+***
+
+### One last note
+What we want most of all is for our friends and family to gather for the weekend in the same place. Your presence is the only gift we hope to receive. 
+
 
