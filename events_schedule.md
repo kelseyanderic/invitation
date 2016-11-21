@@ -2,13 +2,13 @@
 
 Schedule to be updated with more specifics closer to the event so check back!
 
-## Friday
+## Friday, May 12
 Welcome dinner and drinks in Downtown Boise
 
-## Saturday
+## Saturday, May 13
 Wedding and reception at Barber Park
 
 Note: We will have buses to and from The Grove Hotel and Barber Park
 
-## Sunday
+## Sunday, May 14
 A reward for sticking around
