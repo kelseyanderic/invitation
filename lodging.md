@@ -12,7 +12,7 @@ The Grove Hotel is located in the heart of downtown Boise. It is walking distanc
 Hotel 43 is located just around the corner and is similarly close to many stores and restaurants downtown. 
 
 **Instructions for room reservation:** Please visit 
-[Maguire-Jonas Hotel 43 reservation link](https://gc.synxis.com/rez.aspx?Hotel=14937&Chain=5150&arrive=05/12/2017&depart=05/14/2017&adult=1&child=0&PROMO=MJWG)
+[Maguire-Jonas Hotel 43 reservation link](https://gc.synxis.com/rez.aspx?Hotel=14937&Chain=21644&arrive=05/12/2017&depart=05/14/2017&adult=1&child=0&PROMO=MJWG)
 or call the hotel directly (208) 342-4622 and identify yourself as a member of the Maguire-Jonas wedding group   
 
 There are lots of other great hotels as well as Airbnb's in the area if you'd like to look elsewhere!
