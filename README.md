@@ -23,7 +23,7 @@ All our love,
 Eric & Kelsey
 
 
-![New Years](photos/new years eve.jpg)
+![New Years](photos/new_years_eve.small.jpg)
 
 
 
