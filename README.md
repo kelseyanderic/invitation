@@ -23,9 +23,9 @@ All our love,
 Eric & Kelsey
 
 
-![New Years](photos/new years eve.small.jpeg)
-=======
-***
+![New Years](photos/new years eve.jpg)
+
+
 
 ### Links  
 [Schedule](https://github.com/kelseyanderic/invitation/blob/master/events_schedule.md)  
