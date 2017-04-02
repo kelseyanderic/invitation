@@ -1,4 +1,4 @@
-###Flights
+# Flights
 
 Boise Airport is the nearest airport. It is served by six airlines:  
 
