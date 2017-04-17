@@ -17,8 +17,12 @@ Barber Park Event Center
 Boise, Idaho 83716  
 ...Followed by cocktails and reception!
 
-****Note! Buses departing from the Grove Hotel at 4:30PM****  
+****Note! Buses departing from the Grove Hotel at 4:20PM****  
 
 
 ## Sunday, May 14
-Bagels and coffee, location TBD
+**Bagels and coffee in the park**   
+10AM MT  
+Julia Davis Park - Boise Pavillion  
+(10 minute walk from The Grove)  
+Map [here](http://parks.cityofboise.org/media/376372/julia-davis-park-narrative-2016.pdf)
